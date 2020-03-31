@@ -1,0 +1,2 @@
+# gemini
+sukses selalu
